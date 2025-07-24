@@ -9,7 +9,7 @@
 # 1\. Tại sao cần chứng minh tài chính?
 
 # Lãnh sự quán Đài Loan yêu cầu khách du lịch Việt Nam chứng minh tài chính để đảm bảo bạn có đủ khả năng chi trả cho chuyến đi và không có ý định cư trú bất hợp pháp. Việc này giúp tạo sự tin tưởng rằng bạn là người có công việc ổn định, thu nhập rõ ràng và mục đích nhập cảnh minh bạch.
-
+Xem thêm: https://dichvutaichinh.vn/chung-minh-tai-chinh-du-lich-dai-loan.html
 # 
 
 # 2\. Cần chứng minh bao nhiêu tiền?
